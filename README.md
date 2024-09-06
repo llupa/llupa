@@ -5,4 +5,4 @@
 
 ### We met at a meetup / conference?
 
-I try to share my day-to-day experince from corporate world projects with talks and presentations. These take time and effort to prepare. If you liked my last talk and want to say thank you, you can [buy me a coffee](buymeacoffee.com/sllupa) 
+I try to share my day-to-day experince from corporate world projects with talks and presentations. These take time and effort to prepare. If you liked my last talk and want to say thank you, you can [buy me a coffee](https://buymeacoffee.com/sllupa) 
